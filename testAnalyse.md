@@ -1,5 +1,3 @@
-Noteer ook wat je van de kwaliteit van de testfootage vond. Was de footage goed te observeren? hoe kwam dat? wat vond je goed aan de footage en wat zou je zelf anders doen?
-
 testAnalyse
 
 Observatie van: 0:00 tot 6:00 in de video
