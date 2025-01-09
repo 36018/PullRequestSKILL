@@ -4,7 +4,6 @@ De footage was makkelijk te bekijken en ik vond er geen problemen mee
 
 Je kan niet zien wat op de doos staat.
 Controls zijn anders voor PlayStation controllers.
-Dozen stapelen is leuk.
 de speler klikt 5x op een knop om de hamer te pakken maar dit werkt niet.
 De speler loopt lang de hamer en klikt maar de hamer blijft liggen.
 Je kan niet naar boven lopen als de heuvel omlaag gaat.
